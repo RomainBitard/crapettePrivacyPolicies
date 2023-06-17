@@ -1,5 +1,5 @@
 
-# Privacy Policy for Crapette and YellowDwarf
+# Privacy Policy for Crapette, YellowDwarf and Solitaire
 
 In order to evaluate and possibly enter into a business transaction (the "Purpose"), Unscripted Engineering, for itself and its subsidiaries and affiliates, and the other party identified below hereby agree:
 
